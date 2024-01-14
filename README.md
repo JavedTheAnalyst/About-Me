@@ -2,9 +2,9 @@
 
 💖 Greetings, I'm Muhammad Javed, the Data Analyst.
 
-🚗 I'm helping businesses unwrapping valuable insights from footling data.
+📈 I'm helping businesses unwrapping valuable insights from footling data.
 
-👉 I'm open to collaborations in the field of data analytics.
+📊 I'm open to collaborations in the field of data analytics.
 
 📞 Feel free to contact me:
 
