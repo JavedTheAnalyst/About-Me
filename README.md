@@ -1,5 +1,4 @@
 # MUHAMMAD JAVED
-The Data Analyst
 
 💖 Greetings, I'm Muhammad Javed, the Data Analyst.
 
