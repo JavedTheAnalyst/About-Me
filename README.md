@@ -6,6 +6,6 @@
 
 👉 I'm open to collaborations in the field of data analytics.
 
-📞 Feel free to contact me via the following means:
+📞 Feel free to contact me:
 
 https://www.linkedin.com/in/muhammad-javed-27a10b198/
