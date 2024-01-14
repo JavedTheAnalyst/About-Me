@@ -1,8 +1,9 @@
-# About-Me
+# MUHAMMAD JAVED
+The Data Analyst
 
 💖 Greetings, I'm Muhammad Javed, the Data Analyst.
 
-🚗 I'm helping businesses about unwraping valuable insights from footling data.
+🚗 I'm helping businesses unwrapping valuable insights from footling data.
 
 👉 I'm open to collaborations in the field of data analytics.
 
